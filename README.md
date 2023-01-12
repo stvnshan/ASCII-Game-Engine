@@ -6,6 +6,11 @@ Some pictures about the games:
 
 ![image](https://user-images.githubusercontent.com/83726215/211976455-294d7d30-3075-414b-b87a-de8e3c9dace0.png)
 
+![image](https://user-images.githubusercontent.com/83726215/211976608-adc2192b-a7bf-480e-acac-a39b83563e06.png)
+
+![image](https://user-images.githubusercontent.com/83726215/211976760-d0718eb1-e676-41e1-a874-2fc0aa2439b9.png)
+
+![image](https://user-images.githubusercontent.com/83726215/211976871-85cd1e48-fac1-48c8-96f8-23283281bbd1.png)
 
 
 
